@@ -6,3 +6,4 @@ bisnmillah jpjp
 yok bisa yok
 haiyahh wkwk
 kita full kan gess
+full laden
