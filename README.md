@@ -9,3 +9,4 @@ kita full kan gess
 full laden
 bismillah cair2
 yok bisa ges
+ttp gaspoll
