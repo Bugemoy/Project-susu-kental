@@ -10,3 +10,4 @@ full laden
 bismillah cair2
 yok bisa ges
 ttp gaspoll
+nugas gk sih
