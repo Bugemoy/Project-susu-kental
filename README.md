@@ -12,3 +12,4 @@ yok bisa ges
 ttp gaspoll
 nugas gk sih
 noeiscee
+hari hari jadi badut
