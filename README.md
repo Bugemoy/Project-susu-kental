@@ -14,3 +14,4 @@ nugas gk sih
 noeiscee
 hari hari jadi badut
 ngantuk skali
+masyaallah
