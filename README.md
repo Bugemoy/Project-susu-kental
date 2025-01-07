@@ -15,3 +15,4 @@ noeiscee
 hari hari jadi badut
 ngantuk skali
 masyaallah
+masyaallah sekali
