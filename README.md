@@ -16,3 +16,4 @@ hari hari jadi badut
 ngantuk skali
 masyaallah
 masyaallah sekali
+yok bisa yok
