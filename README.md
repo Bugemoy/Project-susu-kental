@@ -17,3 +17,4 @@ ngantuk skali
 masyaallah
 masyaallah sekali
 yok bisa yok
+tgl 10 nt 
