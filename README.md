@@ -18,3 +18,4 @@ masyaallah
 masyaallah sekali
 yok bisa yok
 tgl 10 nt 
+tgl 11 gas terys
