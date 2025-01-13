@@ -20,3 +20,4 @@ yok bisa yok
 tgl 10 nt 
 tgl 11 gas terys
 ttp semangat ges 
+beli pakan kucing dlu 
