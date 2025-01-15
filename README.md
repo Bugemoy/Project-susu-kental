@@ -22,3 +22,4 @@ tgl 11 gas terys
 ttp semangat ges 
 beli pakan kucing dlu 
 mati rasa lol
+gg juga 600k
