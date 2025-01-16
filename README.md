@@ -23,3 +23,4 @@ ttp semangat ges
 beli pakan kucing dlu 
 mati rasa lol
 gg juga 600k
+alhamdulillah
