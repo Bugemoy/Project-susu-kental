@@ -26,3 +26,4 @@ gg juga 600k
 alhamdulillah
 bismillah bisa mint
 allahuakbar
+insyallah
