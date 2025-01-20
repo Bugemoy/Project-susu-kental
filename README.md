@@ -27,3 +27,4 @@ alhamdulillah
 bismillah bisa mint
 allahuakbar
 insyallah
+alhamdulillah bisa mint 1
