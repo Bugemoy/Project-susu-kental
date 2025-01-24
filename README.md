@@ -31,3 +31,4 @@ alhamdulillah bisa mint 1
 newyea new me
 walaweee
 tetap semangat
+Bobo wkwk
