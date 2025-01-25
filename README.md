@@ -32,3 +32,4 @@ newyea new me
 walaweee
 tetap semangat
 Bobo wkwk
+bismillah
