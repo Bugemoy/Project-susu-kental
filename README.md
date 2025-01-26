@@ -33,3 +33,4 @@ walaweee
 tetap semangat
 Bobo wkwk
 bismillah
+hari ke 36 ttp semangat  
