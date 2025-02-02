@@ -40,3 +40,4 @@ broo alhamdulillah
 semangatt2
 gas teruss
 kacau maru
+terlalu sayang dilupakan
