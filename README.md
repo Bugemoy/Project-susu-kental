@@ -43,3 +43,4 @@ kacau maru
 terlalu sayang dilupakan
 gasekun boy haha
 jangan ges tolong saya
+gk jelas rioo
