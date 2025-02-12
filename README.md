@@ -48,3 +48,4 @@ elig 5 modnya njir
 gas terus bismillah
 im back letsgoo
 kedalam ges
+terasa sangat menyedihkan
