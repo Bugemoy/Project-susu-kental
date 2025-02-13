@@ -49,3 +49,4 @@ gas terus bismillah
 im back letsgoo
 kedalam ges
 terasa sangat menyedihkan
+semangattt
