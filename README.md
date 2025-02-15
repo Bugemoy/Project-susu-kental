@@ -50,3 +50,4 @@ im back letsgoo
 kedalam ges
 terasa sangat menyedihkan
 semangattt
+tk temukan jalan
