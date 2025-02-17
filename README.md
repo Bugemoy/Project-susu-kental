@@ -52,3 +52,4 @@ terasa sangat menyedihkan
 semangattt
 tk temukan jalan
 tetep semangat gess
+gasin brooo
