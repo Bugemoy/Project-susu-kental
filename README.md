@@ -54,3 +54,4 @@ tk temukan jalan
 tetep semangat gess
 gasin brooo
 d-10 gaes
+gg ges
