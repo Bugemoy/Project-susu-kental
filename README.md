@@ -56,3 +56,4 @@ gasin brooo
 d-10 gaes
 gg ges
 mobmob88
+kita tk bisa bersama
