@@ -62,3 +62,4 @@ ngeri penjaranya kocak
 walaweeeee
 keren haha
 mereka yang bilang
+kocak vindra
