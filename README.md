@@ -63,3 +63,4 @@ walaweeeee
 keren haha
 mereka yang bilang
 kocak vindra
+bismillah lisk cair
