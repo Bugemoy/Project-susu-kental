@@ -64,3 +64,4 @@ keren haha
 mereka yang bilang
 kocak vindra
 bismillah lisk cair
+bismillah gas lisk
