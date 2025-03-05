@@ -67,3 +67,4 @@ bismillah lisk cair
 bismillah gas lisk
 hadeh said kocak kocak
 bismillah 
+gas kenceng
