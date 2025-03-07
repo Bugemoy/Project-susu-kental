@@ -69,3 +69,4 @@ hadeh said kocak kocak
 bismillah 
 gas kenceng
 hari2 gas terus
+penambahan bata
