@@ -70,3 +70,4 @@ bismillah
 gas kenceng
 hari2 gas terus
 penambahan bata
+gaess
