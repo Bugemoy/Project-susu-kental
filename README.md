@@ -72,3 +72,4 @@ hari2 gas terus
 penambahan bata
 gaess
 wihwihwihw
+jangan arogan mas bro
