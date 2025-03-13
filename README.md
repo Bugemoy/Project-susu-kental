@@ -75,3 +75,4 @@ wihwihwihw
 jangan arogan mas bro
 dadi pelarian
 milih wong seng luwih muly0o
+slalu ngancani ilang endinge
