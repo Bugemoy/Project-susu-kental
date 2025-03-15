@@ -77,3 +77,4 @@ dadi pelarian
 milih wong seng luwih muly0o
 slalu ngancani ilang endinge
 nyawang koe kepenak
+kayaknya si rio bg 
