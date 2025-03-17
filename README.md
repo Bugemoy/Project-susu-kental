@@ -79,3 +79,4 @@ slalu ngancani ilang endinge
 nyawang koe kepenak
 kayaknya si rio bg 
 bismillah jp teruss
+why u said thattt
