@@ -84,3 +84,4 @@ bagian seng nglarani aku wae
 ngantuk rill
 brooo
 tukul wiranggg
+wes jan kacau
