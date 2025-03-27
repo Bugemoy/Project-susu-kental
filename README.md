@@ -88,3 +88,4 @@ wes jan kacau
 cak kocak
 apa itu nilion sir
 lah gg
+mesti iso mikir batese pergaulanmu
