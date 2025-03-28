@@ -89,3 +89,4 @@ cak kocak
 apa itu nilion sir
 lah gg
 mesti iso mikir batese pergaulanmu
+nganti padang mendung neng atimu
