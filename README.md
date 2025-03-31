@@ -92,3 +92,4 @@ mesti iso mikir batese pergaulanmu
 nganti padang mendung neng atimu
 kok malah ngilang
 rak popo seng penting loss
+bismillah jp
