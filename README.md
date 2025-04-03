@@ -94,3 +94,4 @@ kok malah ngilang
 rak popo seng penting loss
 bismillah jp
 cak kocak
+aku masih ragu
