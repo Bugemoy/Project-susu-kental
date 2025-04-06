@@ -95,3 +95,4 @@ rak popo seng penting loss
 bismillah jp
 cak kocak
 aku masih ragu
+nt bro
